@@ -1,6 +1,6 @@
 Hello world! 👋
 
-I'm Steph! Your friendly, neighborhood Fantasy Writer, Small Business Owner, & Marketing Coordinator! 🕸️
+I'm Steph! Your friendly, neighborhood Fantasy Writer, Small Business Owner, & Aspiring Therapist! 🕸️
 
 I have a Bachelors degree in Creative Writing 📖✍️ with 3+ years of experience in Teaching 🍎 3+ years of experience in Digital Marketing 🎨 and 1+ years of experience in Ecommerce 🛒
 
