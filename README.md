@@ -1,6 +1,6 @@
 Hello world! 👋
 
-I'm Steph! Your friendly, neighborhood Fantasy Writer, Small Business Owner, & Freelance Graphic Designer! 🕸️
+I'm Steph! Your friendly, neighborhood Fantasy Writer & Small Business Owner! 🕸️
 
 I have a Bachelors degree in Creative Writing 📖✍️ with 3+ years of experience in Digital Marketing 📊 3+ years of experience in Graphic Design 🎨 and 2+ years of experience in Ecommerce 🛒
 
