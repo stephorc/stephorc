@@ -1,6 +1,6 @@
 Hello world! 👋
 
-I'm Steph! Your friendly neighborhood Fantasy Author, Bookkeeper, & Web Dev! 🕸️
+I'm Steph! Your friendly neighborhood Speculative Fiction Author & Web Dev! 🕸️
 
 I have a Bachelor's degree in Creative Writing 📖✍️ with 3+ years of experience in Education 🍎 and an additional 3+ years of experience in Digital Marketing 📊 Graphic Design 🎨 Web Development 💻 and E-commerce 🛒
 
